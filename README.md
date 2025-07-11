@@ -24,9 +24,9 @@ Merhaba Beyler ben Gülşah. Resimlerim %100 bana ait. 27 yaşında, 1.60 boyund
 ## İletişim
 
 
-**WhatsApp:** [WhatsApp'tan Mesaj Gönder](https://wa.me/905425850931)
+**WhatsApp:** [WhatsApp'tan Mesaj Gönder](https://wa.me/+905515005594&text=Selam;))
 
 ---
 
 ### ÖNEMLİ UYARI
-Buluşma öncesi hesabına para yatırmanızı isteyenler dolandırıcıdır. Sadece yüz yüze ödeme yapın. Sitemiz %100 Gerçek Escort ve Escort Ajanslarını yayınlamaktadır.
+Buluşma öncesi hesabına para yatırmanızı isteyenler dolandırıcıdır. Sadece yüz yüze ödeme yapın. 
